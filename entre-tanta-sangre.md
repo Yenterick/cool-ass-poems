@@ -5,7 +5,7 @@
 
 ¿Qué es lo que más extrañas? ¿Qué es lo que ves cuando adelante solo tienes esta oscuridad sofocante? ¿Qué tanto soportará tu corazón cuando se dé cuenta que todo el valor que reuniste no es suficiente si quiera para que tus rodillas vuelvan a erguirse una vez más? 
 
-Mientras más arañas la puerta que se interpone en tu camino, más débiles quedan tus manos, y una vez más, te marea ese olor a sangre al que no has logrado acostumbrarte nisiquiera después de tanto tiempo. Tus tendones rasgados te piden a gritos que te detengas, y tus nervios se revuelven hasta que dejas de sentir tus manos, y finalmente, tu cuerpo. 
+Mientras más arañas la puerta que se interpone en tu camino, más débiles quedan tus manos, y una vez más, te marea ese olor a sangre al que no has logrado acostumbrarte ni siquiera después de tanto tiempo. Tus tendones rasgados te piden a gritos que te detengas, y tus nervios se revuelven hasta que dejas de sentir tus manos, y finalmente, tu cuerpo. 
 
 ##### X
 
